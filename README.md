@@ -1,0 +1,1 @@
+# GIGABYTE-Z490M
